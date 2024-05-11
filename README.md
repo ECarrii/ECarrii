@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ECarrii or Emilia
+- 👀 I’m interested in: Furthering my knowledge
+- 🌱 I’m currently learning: How to write code, then how to program
+- 📫 How to reach me: Email me at jerichoalagd03@gmail.com
+- 😄 Pronouns: She/Her
